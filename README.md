@@ -1,4 +1,3 @@
-# Decentrathon
 # 💫 About Me:
 "Always learning, always leveling up."<br><br>I'm a student with a sharp focus on success—<br>whether it's mastering exams or exploring the world of ethical hackin. <br>With a solid grip on English and <br>an unstoppable drive to improve,<br>I’m always pushing my limits.<br>Challenges? Bring them o
 
